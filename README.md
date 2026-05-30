@@ -4,6 +4,6 @@ Portman Lights is a Polish manufacturer of professional decorative stage lightin
 
 Inner Circle Distribution is a U.S. distributor for Portman Lights, supporting product availability, demos, service, education, and long-term customer relationships across North America, Latin America, and the Caribbean.
 
-Website: https://icd-usa.com
+Website: https://www.icd-usa.com/pages/portman-lights
 
 Portman® is a registered trademark of Portman Lights Sp. z o.o. Inner Circle Distribution distributes Portman Lights products in the U.S.
